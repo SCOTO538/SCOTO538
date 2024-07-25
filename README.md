@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SCOTO538
 - 👀 I’m interested in community project 
-- 🌱 I’m currently learning crypto economics and advisor marketing .
+- 🌱  crypto economics and advisor marketing .
 - 💞️ I’m looking to collaborate on défi,NFT,airdrops and many more.
 - 📫 How to reach me lawalbeeb28@aol.com.
 <!---
